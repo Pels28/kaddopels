@@ -1,4 +1,4 @@
-![thumbnail](https://i.postimg.cc/ZYsNNh8c/Screenshot-2025-07-31-122849.png)
+![thumbnail](https://i.postimg.cc/156p1jFr/Screenshot-2025-07-31-122849.png)
 
 
 
